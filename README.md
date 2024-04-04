@@ -1,10 +1,9 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on my SPRAY WALL
-- 🌱 I’m currently learning how to build a SPRAY WALL
-- 👯 I’m looking to collaborate on building a SPRAY WALL
-- 🤔 I’m looking for help with my SPRAY WALL
-- 💬 Ask me about my SPRAY WALL
+- 🔭 We're currently working on our SPRAY WALL
+- 🌱 We're currently learning how to build a SPRAY WALL
+- 👯 We're looking to collaborate on building a SPRAY WALL
+- 💬 Ask us about our SPRAY WALL
 - 📫 How to reach us: on our SPRAY WALL
 - 😄 Pronouns: SPRAY / WALL
 - ⚡ Fun fact: We own a SPRAY WALL

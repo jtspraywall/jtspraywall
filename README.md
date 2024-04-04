@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+- 🔭 I’m currently working on my SPRAY WALL
+- 🌱 I’m currently learning how to build a SPRAY WALL
+- 👯 I’m looking to collaborate on building a SPRAY WALL
+- 🤔 I’m looking for help with my SPRAY WALL
+- 💬 Ask me about my SPRAY WALL
+- 📫 How to reach us: on our SPRAY WALL
+- 😄 Pronouns: SPRAY / WALL
+- ⚡ Fun fact: We own a SPRAY WALL
+
 <!--
 **jtspraywall/jtspraywall** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
